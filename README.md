@@ -1,11 +1,11 @@
 
-💫 About Me:
+⚡About Aya:
 
 
 🔭 Space Travel Dreamer
 
-👯 Would love to learn from the community in the field of Data Science and Analytics
+👯 Communication Builder - Interactor
 
-🌱 Learning my way up one step at a time.
+🌱 Never stop learning and growing
 
-⚡ Fun fact: I understand mostly food language.
+💫 Always strive for building a better version of myself
