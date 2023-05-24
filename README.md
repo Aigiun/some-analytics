@@ -1,7 +1,6 @@
 
                                   ⚡About Aya:
 
-
 🔭 Space Travel Dreamer
 
 👯 Communication Builder - Interactor
