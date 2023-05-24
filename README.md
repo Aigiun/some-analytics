@@ -1,6 +1,6 @@
  🌟 Aya:Space Travel Dreamer
 
-🔭 Vision & Mission Communication Builder 
+🔭 Vision & Mission/Communication Builder 
 
 🌱 Never stop learning and growing
 
