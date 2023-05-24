@@ -1,4 +1,4 @@
- 🌟 Aya:Space Travel Dreamer
+ 🌟 Aya: Space Travel Dreamer
 
 🔭 Vision & Mission/Communication Builder 
 
